@@ -1,2 +1,2 @@
-# planedatabase.sys
+# planedatabase
 Work in progress!
