@@ -1,6 +1,6 @@
 <div align=center> <h1> planedatabase </h1> </div>
 
-<p align=center> <a href="https://colormytree.me/2025/01KC4ZN2TTNG406706TQEWYYRY">Color my tree!!!</a></p>
+<p align=center>🎄 <a href="https://colormytree.me/2025/01KC4ZN2TTNG406706TQEWYYRY">Color my tree!!!</a> 🎄</p>
 
 <p align=center> ${{\color{#7bafbd}\huge{\texttt{Zephyr}}}}$ </p>
 
