@@ -19,8 +19,6 @@
 <p align=center> I have bad memory. If I can't remember something please be patient.
   <br> I block freely! It is nothing personal. </p>
 
-  <p align=center>I am uncomfortable with: Lairy/airpack shippers, pro/darkshippers, and endogenics. </p>
-
-<p align=center> Ponytown user batisKRAZY for repeatedly harassing our friends. <a href="https://rentry.co/KrazyIsCrazy">Rentry with proof.</a> </p>
+  <p align=center>I am uncomfortable with: Lairy/airpack shippers, pro/darkshippers, and endogenics. Ponytown user batisKRAZY. </p>
 
   <p align=center> more likely TBA </p>
