@@ -17,6 +17,6 @@
 <p align=center> I have bad memory. If I can't remember something please be patient.
   <br> I block freely! It is nothing personal. </p>
 
-  <p align=center>I am uncomfortable with: Lairy/airpack shippers, pro/darkshippers, endogenics, and big fans of Steve Cobs II or mephone4(/srs. it may seem silly, but I have my reasons.) . Ponytown user batisKRAZY. </p>
+  <p align=center>I am uncomfortable with: Lairy/airpack shippers, pro/darkshippers, endogenics, and big fans of Steve Cobs II or mephone4(/srs. it may seem silly, but I have my reasons.) </p>
 
   <p align=center> more likely TBA </p>
